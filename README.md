@@ -7,9 +7,9 @@
 </p>
 
 <p align="center">
-$\text{\color{#8b7194}{౿ . . . ranpo, ango, or tecchou}}$ <br>
-$\text{\color{#8b7194}{he/lamb/soothe \ ︶ \ seventeen}}$ <br>
-$\text{\color{#8b7194}{usually at bsd area, café, or pi}}$ 
+$\text{\color{#8b7194}{౿ . . . ranpo or ango \ ੭ autistic}}$ <br>
+$\text{\color{#8b7194}{he/soothe/lullaby \ ︶ \ seventeen}}$ <br>
+$\text{\color{#8b7194}{usually at bsd area, cafe, or pi :3}}$ 
 </p>
 
 <p align="center">
