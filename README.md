@@ -8,7 +8,7 @@
 
 <p align="center">
 $\text{\color{#8b7194}{౿ . . . ranpo, ango, or tecchou}}$ <br>
-$\text{\color{#8b7194}{he/lamb/soothe \ ︶ \ seventeen}}$ <br>
+$\text{\color{#8b7194}{he/soothe/lamb \ ︶ \ seventeen}}$ <br>
 $\text{\color{#8b7194}{usually at bsd area, café, or pi}}$ 
 </p>
 
